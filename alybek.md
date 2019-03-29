@@ -1,0 +1,1 @@
+Alybek Bektursun uulu
