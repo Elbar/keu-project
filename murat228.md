@@ -1,1 +1,1 @@
-Jumaev Murat Kanatbekovich Bi-1-18
+Jumaev Murat Kanatbekovich BI-1-18
