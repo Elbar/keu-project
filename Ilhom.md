@@ -1,2 +1,2 @@
-Saldzhanov Il'hom Kamyldzhanovich 
-BI-1-18 
+Салджанов Ильхом Камылжанович
+БИ-1-18 
